@@ -3,5 +3,5 @@ Learning to do a repository
 
 Hi everybody!
 
-I really love tacos, my facorite food (uma delicia! :p)
+I really love tacos, my favorite food (uma delicia! :p)
 Maths Rules B)
